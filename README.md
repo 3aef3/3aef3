@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @3aef3
+- 👀 I’m interested in Modelling and Texturing.
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on FiveM Servers
+- 📫 How to reach me Email: kayso2991@gmail.com
+- 😄 Pronouns: He/Him
